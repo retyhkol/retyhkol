@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...e
 - 😄 Pronouns: ...wer
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...sdf
 4521
 <!---
 retyhkol/retyhkol is a ✨ special ✨ repository because i45ts `README.md` (this file) appears on your GitHub profile.321
