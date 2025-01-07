@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...sdf
-- 📫 How to reach me ...e
+- 📫 How to reach me ...e526
 - 😄 Pronouns: ...wer54
 4521sdfsdfjmhghsdf
 <!---dfgdfyu534sfd
