@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...sdf
 - 📫 How to reach me ...e526636
-- 😄 Pronouns: ...wer54
+- 😄 Pronouns: ...wer54ujujj
 4521sdfsdfjmhghsdf
 <!---dfgdfyu534sfd
 retyhkol/retyhkol is a ✨ special ✨ repository becsausesdf i45ts `README.md` (this file) appears on your GitHub profile.321sdfcv
