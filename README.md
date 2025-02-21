@@ -1,6 +1,6 @@
 hgnfdsffvbn696996- 👋 Hi, I’m @retyhkol
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...tgt
 - 💞️ I’m looking to collaborate on ...sdfdfgxcvvxcioio
 - 📫 How to reach me ...e526636956xcv
 - 😄 Pronouns: ...wer54ujujjdsbgffg
