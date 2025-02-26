@@ -6,7 +6,7 @@ hgnfdsffvbn696996- 👋 Hi, I’m @retyhkol
 - 😄 Pronouns: ...wer54ujujjdsbgffghgdf
 4521sdfsdfjmhghsdfefrsdccsdfgdhaaas
 retyhkol/retyhkol is a ✨ special ✨ repository becsausesdf i45ts `README.md` (thisuik file) appears on your GitHub profile.321sdfcvmjjxzxc
-You can click the Preview link to take a look at your changes.fh11441jk,jkg
+You can click the Preview link to take a look at your changes.fh11441jk,jkgcxz
 --->3655653
 fgsxvckl.,jnm
 jmjmcvcc
