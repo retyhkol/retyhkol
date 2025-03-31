@@ -1,7 +1,7 @@
 xzcxzcasdhgnfdsffvbn696996- 👋 Hi, I’m @retyhkol
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...tgt
-- 💞️ I’m looking to collaborate on ...sdfdfgxcvvxcioiobgfdbfnhggcxxc
+- 💞️ I’m looking to collaborate on ...sdfdfgxcvvxcioiobgfdbfnhggcxxcvbnvb
 - 📫 How to reach me ...e526636956xcvwerxcvcxveeejjjm
 - 😄 Pronouns: ...wer54ujujjdsbgffghgdfgerjmh
 4521sdfsdfjmhghsdfefrsdccsdfgdhaaashytqsqs
